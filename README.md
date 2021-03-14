@@ -67,7 +67,7 @@ summer time journey<br>
 爱啮爱咬<br>
 某日，捡到了不祥的孩子<br>
 狂魇惨毒<br>
-- [ ] 黄泉列车<br>
+黄泉列车<br>
 味道如何<br>
 常暗之厢<br>
 望君长留<br>
