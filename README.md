@@ -96,7 +96,9 @@ summer time journey<br>
 我什么都不知道~犯人是HO2<br>
 一万零一块<br>
 变身<br>
+细冰的孩子们<br>
 For Whom The Chime Tolls<br>
+旅馆的捕食者<br>
 天上落土，诱汝堕乐
 
 </div>
