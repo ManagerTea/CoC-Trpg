@@ -97,13 +97,15 @@ summer time journey<br>
 
 </div>
 
-## 已经发射的卫星2021.4.27
+## 已经发射的卫星2021.7.2
 <div align="center">
   
 我什么都不知道~犯人是HO2<br>
 一万零一块<br>
 变身<br>
 旅馆的捕食者<br>
-天上落土，诱汝堕乐
-
+天上落土，诱汝堕乐<br>
+Stereo Time<br>
+XNEXUS
+  
 </div>
