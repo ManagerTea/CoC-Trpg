@@ -108,6 +108,8 @@ XNEXUS<br>
 VOID<br>
 旅馆的捕食者<br>
 快刀乱魔<br>
+爱眼金鱼<br>
+感染自罪蒙太奇<br>
 
   
 </div>
